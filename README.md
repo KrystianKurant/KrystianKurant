@@ -1,4 +1,4 @@
-## 👋 Cześć! Nazywam się [Twoje Imię]  
+## 👋 Cześć! Nazywam się Krystian  
 ### 🎮 Twórca gier VR | 👨‍💻 Technik informatyk | 🎨 3D Generalist  
 
 ---
